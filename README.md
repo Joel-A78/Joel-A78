@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Joel-A78
+- 👀 I’m interested in technology and motorsports. 
+- 🌱 I’m currently learning Business Intelligence, which includes Data Analysis, Extraction and mining, and Artificial Intelligence, among other topics. 
+- 💞️ I’m looking to collaborate on any of the topics mentioned in the previous row
+- 📫 You can reach me through email, joel.estrada78@uabc.edu.mx or joelatejedae8552@gmail.com
